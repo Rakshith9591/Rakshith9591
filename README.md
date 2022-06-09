@@ -3,9 +3,9 @@ IM RAKSHITH.A.S
 
 
 
-- 🔭 I’m currently working on Rakshith.A.S
+- 🔭 I’m currently doing my graduation
 - 🌱 I’m currently learning Python
--     Youtuber
+-   & also a Youtuber(120K Subs)
 - 💬 Ask me about Editing
 - ⚡ 
 
